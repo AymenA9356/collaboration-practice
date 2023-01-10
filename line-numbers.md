@@ -6,7 +6,7 @@
 #### 6
 #### 7 I do have ice brackers
 #### 8
-#### 9 GitHub is really good.
+#### 9 GitHub really awesome.
 #### 10
 #### 11
 #### 12
